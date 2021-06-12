@@ -10,7 +10,7 @@ It's not heavy rain today...more of a mist. The heavy rain was making it's dance
 
 ## Dogs Have Been Out
 
-I have taken all three dogs out for their morning pee and poop. Big boy Amos has still got his cone of shame on and does very well with it. He had surgery a litte over a day ago. He is doing well considering that he had his stomach tacked and his manhood (testicles) removed. 
+I have taken all three dogs out for their morning pee and poop. Big boy Amos has still got his cone of shame on and does very well with it. He had surgery a litte over a day ago. He is doing well considering that he had his stomach tacked and his manhood (testicles) removed.
 
 ## Image
 
